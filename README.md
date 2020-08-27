@@ -1,1 +1,2 @@
 # chocolate-chip-cookies
+Chocolate chip cookies are originated in the United States. The chocolate chip cookies were inveented by American chefs 'Ruth Graves Wakefield' and 'sue brides' in 1938. They invented this recipe when ruth graves wakefield when she owned the toll house inn, in whitman, massachusetts. This is a very delicious recipe that most of us love. It is a very easy recipe which all of us can make at our houses. It is best to eat with ice cream.
